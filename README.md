@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AnnaHaBanana
+- 👀 I’m interested in creating value
+- 🌱 I’m currently learning UX-design
+- 📫 Reach me at anna@minuscule.se
